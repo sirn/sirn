@@ -1,3 +1,1 @@
-> The Electric Monk was a labor-saving device, like a dishwasher or a video recorder. Dishwashers washed tedious dishes for you, thus saving you the bother of washing them yourself, video recorders watched tedious television for you, thus saving you the bother of looking at it yourself; Electric Monks believed things for you, thus saving you what was becoming an increasingly onerous task, that of believing all the things the world expected you to believe.
->
-> — Douglas Adams, Dirk Gently's Holistic Detective Agency
+<img width="331" alt="no-tea" src="https://user-images.githubusercontent.com/4061/114442349-69e12900-9c07-11eb-8eff-a095a9069934.png">
